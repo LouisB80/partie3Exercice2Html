@@ -1,0 +1,1 @@
+partie3Exercice2Html
